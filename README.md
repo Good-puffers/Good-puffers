@@ -4,7 +4,9 @@
 
 ### <p align="center">[Discord](https://discord.com/users/1265088867992735868) ![Test image4](https://64.media.tumblr.com/269643ae9d24125e9ffb3b7b258a9a70/f0fd9f58d6823f0d-25/s75x75_c1/614ba400922cd3584c580c7a0e4401f450894f10.gifv) [Roblox](https://www.roblox.com/es/users/7350139048/profile)
 
-#### <p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1000&color=F79C11&width=435&lines=Don't+waste+your+energy+on+me.+okay%3F;I+am+very+bad+at+friendships...+fr.;+Does+anyone+think+I'm+important%3F+Mh.)](https://git.io/typing-svg) ![Test image4](https://biscuit.crd.co/assets/images/gallery102/4408ce6e.gif?v=532faf5f)
+#### <p align="center">[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=1000&color=F79C11&width=435&lines=Don't+waste+your+energy+on+me.+okay%3F;I+am+very+bad+at+friendships...+fr.;+Does+anyone+think+I'm+important%3F+Mh.)](https://git.io/typing-svg) 
+
+#### <p align="center">![Test image4](https://64.media.tumblr.com/3a9cc9140d9229af14ecd52007e8cc1d/bc14ff24f1b9e86b-f2/s500x750/f7feb1b65045b32ce40721ae5080a4606e04f3a0.gifv)
 
 #### <p align="center">![](https://komarev.com/ghpvc/?username=Good-puffers&color=F79D11) 
 
