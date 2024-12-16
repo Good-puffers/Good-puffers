@@ -1,4 +1,6 @@
-### <p align="center">![Test image4](https://cdn.discordapp.com/attachments/1265090385089400974/1317262803329089537/13_sin_titulo_20241213165129.png?ex=675e0c15&is=675cba95&hm=ce2fffe03da4c34269367829379baf842f97b4756596fccaea5a9389c91cc75b&)
+### <p align="center">![Test image4](https://cdn.discordapp.com/attachments/1265090385089400974/1317262803329089537/13_sin_titulo_20241213165129.png?ex=6760af15&is=675f5d95&hm=1bc24e30851b1e413c06c5a70208417d63dee705b4bde506ac423d120a7805fb&)
+
+### <p align="center">![Test image4](https://cdn.discordapp.com/attachments/1316197353031467098/1318039255972319294/imagen_2024-12-15_201700406_preview_rev_1.png?ex=6760df36&is=675f8db6&hm=9a39ee4812e0f86f63765dce892ee499da110a3bf7b51d4ae0bda856bd91b2dd&)
 
 ### <p align="center">[Discord](https://discord.com/users/1265088867992735868) ![Test image4](https://64.media.tumblr.com/269643ae9d24125e9ffb3b7b258a9a70/f0fd9f58d6823f0d-25/s75x75_c1/614ba400922cd3584c580c7a0e4401f450894f10.gifv) [Roblox](https://www.roblox.com/es/users/7350139048/profile)
 
@@ -18,4 +20,5 @@
  #### <p align="center">![Test image4](https://64.media.tumblr.com/cbf56f6cc6b33ec4133b45011a5a9879/cce44f25504d7946-c0/s100x200/12c4ca50f832d66bbe38dc211e5b057d1880def4.gifv)
 
 
- #### <p aling="center">![test image4](https://cdn.discordapp.com/attachments/1265090385089400974/1317264929731907604/13_sin_titulo_20241213170020.png?ex=675e0e10&is=675cbc90&hm=4a428cb162334942399cb2539f37f1f1f6e524304ff46baca53f693b2674ff6d&) 
+ #### <p aling="center">(![image](https://github.com/user-attachments/assets/25959a54-2217-47c0-9681-086507ac0052)
+
